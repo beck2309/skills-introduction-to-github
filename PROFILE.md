@@ -1,2 +1,1 @@
-Welcome to my GitHub profile! changes here
-One more c
+Welcome to my GitHub profile!
